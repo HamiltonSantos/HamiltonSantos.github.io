@@ -4,6 +4,6 @@
 ### Social Networks:
 
 * <https://instagram.com/hamiltonsantos747>
-* <https://linked.in/hamiltonsnts>
+* <https://linkedin.com/in/hamiltonsnts>
 * <https://github.com/HamiltonSantos>
 
