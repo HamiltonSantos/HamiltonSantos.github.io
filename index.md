@@ -1,8 +1,4 @@
-# Hamilton Santos
-
-## iOS Developer, Arduino and iOT intusiast, begginer biohacker
-
-### redes Sociais
+## redes Sociais
 
 * <https://instagram.com/hamiltonsantos747>
 * <https://linkedin.com/in/hamiltonsnts>
